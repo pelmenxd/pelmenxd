@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **pelmenx2000@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: pelmenx2000@gmail.com</h3>
 <p align="left">
 </p>
 
